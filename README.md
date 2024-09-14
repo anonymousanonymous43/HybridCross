@@ -1,1 +1,1 @@
-XHybrid is under reviewing. Please stay tuned. 
+XHybrid is under review. Please stay tuned. 
